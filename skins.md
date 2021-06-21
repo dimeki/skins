@@ -3,5 +3,8 @@
 # [- azr8](https://waa.ai/x4IU)
 ![](https://gio.s-ul.eu/KwaolzSU)
 
-# [- skinname]link
-![]screenshot link
+# [- A21](https://waa.ai/x4IM)
+![](https://gio.s-ul.eu/Oo8OmzDL)
+
+# [- idk](https://gio.s-ul.eu/BKZsg1PG)
+![](https://gio.s-ul.eu/YpRXtcuc)
