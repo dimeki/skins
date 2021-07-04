@@ -23,3 +23,9 @@
 
 # [Aristia(Edit)+trail](https://gio.s-ul.eu/InpQ35OO)
 ![](https://gio.s-ul.eu/jrx0ZCvZ)
+
+# [WixxyElaina](https://waa.ai/xuxc)
+![](https://waa.ai/xuxf)
+
+# [Wixxy(hs)](https://waa.ai/xuxV)
+![](https://waa.ai/xuxw)
