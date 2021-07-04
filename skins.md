@@ -1,4 +1,4 @@
-# skins (wip)
+# skins i use (wip)
 
 # [- azr8](https://waa.ai/x4IU)
 ![](https://gio.s-ul.eu/ISHCapbM)
