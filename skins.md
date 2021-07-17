@@ -29,3 +29,9 @@
 
 # [Wixxy(hs)](https://waa.ai/xuxV)
 ![](https://waa.ai/xuxw)
+
+# [tk21 hd remake](https://gio.s-ul.eu/CIm89Bft)
+![](https://gio.s-ul.eu/IWmqZZfe)
+
+# [tk21 dt remake](https://gio.s-ul.eu/92SQ4dti)
+![](https://gio.s-ul.eu/tBDdvAGv)
