@@ -30,8 +30,8 @@
 # [Wixxy(hs)](https://waa.ai/xuxV)
 ![](https://waa.ai/xuxw)
 
-# [tk21 hd remake](https://gio.s-ul.eu/CIm89Bft)
+# [tk21 hd remake](https://gio.s-ul.eu/E7lfK3Bh)
 ![](https://gio.s-ul.eu/IWmqZZfe)
 
-# [tk21 dt remake](https://gio.s-ul.eu/92SQ4dti)
+# [tk21 dt remake](https://gio.s-ul.eu/e1ssFXV2)
 ![](https://gio.s-ul.eu/tBDdvAGv)
