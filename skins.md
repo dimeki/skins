@@ -40,4 +40,4 @@
 ![](https://gio.s-ul.eu/AZGZshOT)
 
 # [ekoro edit](https://waa.ai/qFJ3)
-![](https://waa.ai/qFJp)
+![](https://waa.ai/fQV7.png)
